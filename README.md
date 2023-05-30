@@ -2,9 +2,13 @@
 Team Members:
 
 Menna Elminshawy (Me)
+
 Ahmad Wael Abdelaziz (Contact: LinkedIn: https://www.linkedin.com/in/ahmad-gadalla-717a55242/)
+
 Essam Alaa Nady (Contact: LinkedIn: https://www.linkedin.com/in/essam-alaa-a99a8925b)
+
 Radwa Belal (Contact: radwabelal263@gmail.com)
+
 Nada Ahmed
 
 
